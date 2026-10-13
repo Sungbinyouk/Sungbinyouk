@@ -1,4 +1,4 @@
-### Avid teacher and a curious researcher
+### Assistant Professor, Division of Communication & Media, Ewha Womans University (South Korea)
 ### 📚 Education
 - Ph.D. (2023), University of California, Santa Barbara, Communication
 - M.A. (2020), Korea University, Media & Communication
